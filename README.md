@@ -9,6 +9,10 @@
 
 <div align="center">
   
+${{\color{#FFFFF1}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
+
+<div align="center">
+  
 ${{\color{#EECCD1}{\textsf{ rᥱі / ᥒᥲ᥆ოі }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
 
 <div align="center">

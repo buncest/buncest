@@ -31,11 +31,13 @@ ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4
 
 
 
-[papa adis](https://github.com/F-02-14-23) <br>
+![](https://files.catbox.moe/ctjw82.png) [papa adis](https://github.com/F-02-14-23) <br>
 
-[lil sister glam](https://github.com/girlslikeguns)  <br>
+[lil sis glam](https://github.com/girlslikeguns) ![](https://files.catbox.moe/btzwqz.png)  <br>
 
-[lil brother ather](https://github.com/fyshiguro)  <br>
+![](https://files.catbox.moe/ctjw82.png) [baby sis eli](https://github.com/altruistdeviil)  <br>
+
+[baby bro ather](https://github.com/fyshiguro) ![](https://files.catbox.moe/btzwqz.png)  <br>
 
 
 </details>

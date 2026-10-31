@@ -4,7 +4,7 @@ ${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
 <br>
 <br> 
 <br>
-![](https://komarev.com/ghpvc/?username=princessatoru&color=D5B9CD)
+![](https://komarev.com/ghpvc/?username=princessatoru&label=　ʚ⠀ິɞ　&style=plastic&color=FFFFF1)
 <br>
 
 <div align="center">

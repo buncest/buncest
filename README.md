@@ -1,6 +1,6 @@
 <div align="center">
   
-  ${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
+ ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
 <br>
 <br> 
 <br>

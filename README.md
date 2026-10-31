@@ -3,6 +3,7 @@
 ${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
 <br>
 <br> 
+![](https://komarev.com/ghpvc/?username=princessatoru&color=D5B9CD)
 <br>
 
 <div align="center">
@@ -11,7 +12,7 @@ ${{\color{#EECCD1}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-6c28291f-d689-43ba-bfb7-b411acabfac9.gif) <a href="https://github.com/miraicest">eric </a>
+${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/miraicest">eric </a>
 
 <br>
 
@@ -19,7 +20,7 @@ ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://cdn.phototourl.com/mem
 
 <details>
   <summary>
-     ${{\color{#F0CFD2}{\texttt{　doki4 }}}}$
+     ${{\color{#F0CFD2}{\texttt{　doki4 ₍^^₎ }}}}$
   </summary>
 
 
@@ -36,7 +37,7 @@ ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://cdn.phototourl.com/mem
 
 <details>
   <summary>
-     ${{\color{#D5B9CD}{\texttt{　dni }}}}$
+     ${{\color{#D5B9CD}{\texttt{　dni ₍ᐢᐢ₎ }}}}$ 
   </summary>
 
 <br>
@@ -50,6 +51,10 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 
 
 </details>
+
+<br>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&cover_image=false&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd6e2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&redirect=true)
 
 <br>
 

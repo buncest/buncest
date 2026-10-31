@@ -9,14 +9,19 @@ ${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
+${{\color{#EECCD1}{\textsf{ rei / naomi }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
 
 <div align="center">
   
 ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/miraicest">eric </a>
 
 <br>
+<div align="center">
+  
+![](https://files.catbox.moe/yu16u9.png) 
 
+<div align="center">
+  
 ![Alt](https://files.catbox.moe/oiojik.png)   
 
 <details>
@@ -54,6 +59,10 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 </details>
 
 <br>
+
+<div align="center">
+
+![](https://files.catbox.moe/r3et5z.png) 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&cover_image=false&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd6e2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&redirect=true)
 

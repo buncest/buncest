@@ -71,10 +71,10 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 
 | (˵◝ ⩊  ◜˵マ | ໒꒱ |
 | ----- | ---- |
-| ![](https://files.catbox.moe/rul1w5.png) | `curiousity` |
-| ![](https://files.catbox.moe/b26act.png) | `killed` |
-| ![](https://files.catbox.moe/9gdq6o.png) | `the` |
-| ![](https://files.catbox.moe/a8mvrb.png) | `cat` |
+| ![](https://files.catbox.moe/rul1w5.png) | `ᥴᥙrі᥆ᥙsі𝗍ᥡ` | 
+| ![](https://files.catbox.moe/b26act.png) | `kіᥣᥣᥱძ` |
+| ![](https://files.catbox.moe/9gdq6o.png) | `𝗍һᥱ` |
+| ![](https://files.catbox.moe/a8mvrb.png) | `ᥴᥲ𝗍` |
 
 <br>
 

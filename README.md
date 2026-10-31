@@ -1,6 +1,6 @@
 <div align="center">
   
- ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
+ ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFF1}{\textsf{ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs}}}}$
 <br>
 <br> 
 <br>
@@ -9,11 +9,11 @@
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{ rei / naomi }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
+${{\color{#EECCD1}{\textsf{ rᥱі / ᥒᥲ᥆ოі }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/miraicest">eric </a>
+${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/miraicest">ᥱrіᥴ </a>
 
 <br>
 <div align="center">
@@ -26,18 +26,18 @@ ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4
 
 <details>
   <summary>
-     ${{\color{#F0CFD2}{\texttt{　doki4  ഒ }}}}$
+     ${{\color{#F0CFD2}{\texttt{　ძ᥆kі4  ഒ }}}}$
   </summary>
 
 
 
-![](https://files.catbox.moe/ctjw82.png) [papa adis](https://github.com/F-02-14-23) <br>
+![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ᥲძіs](https://github.com/F-02-14-23) <br>
 
-[lil sis glam](https://github.com/girlslikeguns) ![](https://files.catbox.moe/btzwqz.png)  <br>
+[ᥣіᥣ sіs gᥣᥲო](https://github.com/girlslikeguns) ![](https://files.catbox.moe/btzwqz.png)  <br>
 
-![](https://files.catbox.moe/ctjw82.png) [baby sis eli](https://github.com/altruistdeviil)  <br>
+![](https://files.catbox.moe/ctjw82.png) [ᑲᥲᑲy sіs ᥱᥣі](https://github.com/altruistdeviil)  <br>
 
-[baby bro ather](https://github.com/fyshiguro) ![](https://files.catbox.moe/btzwqz.png)  <br>
+[ᑲᥲᑲy ᑲr᥆ ᥲ𝗍һᥱr](https://github.com/fyshiguro) ![](https://files.catbox.moe/btzwqz.png)  <br>
 
 
 </details>
@@ -45,17 +45,17 @@ ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4
 
 <details>
   <summary>
-     ${{\color{#D5B9CD}{\texttt{　dni  ₍ᐢᐢ₎ }}}}$ 
+     ${{\color{#D5B9CD}{\texttt{　ძᥒі  ₍ᐢᐢ₎ }}}}$ 
   </summary>
 
 <br>
 
-ships, proshippers, darkshippers, xenophobes, racists, homophobes transphobes, just awful people in general. <br>
+sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ᥆ᑲᥱs, rᥲᥴіs𝗍s, һ᥆ო᥆⍴һ᥆ᑲᥱs 𝗍rᥲᥒs⍴һ᥆ᑲᥱs, ȷᥙs𝗍 ᥲᥕ𝖿ᥙᥣ ⍴ᥱ᥆⍴ᥣᥱ іᥒ gᥱᥒᥱrᥲᥣ. <br>
 
-flirty weirdos back off, don't try to sexualize or yumeship with my ocs/sonas bruh. 😭 <br>
-( yall got me messed up after someone whispered me if they could have a yumeship with one of my sonas. ) <br>
+𝖿ᥣіr𝗍y ᥕᥱіrძ᥆s ᑲᥲᥴk ᥆𝖿𝖿, ძ᥆ᥒ'𝗍 𝗍ry 𝗍᥆ sᥱ᥊ᥙᥲᥣіzᥱ ᥆r yᥙოᥱsһі⍴ ᥕі𝗍һ my ᥆ᥴs/s᥆ᥒᥲs ᑲrᥙһ. 😭 <br>
+( yᥲᥣᥣ g᥆𝗍 ოᥱ ოᥱssᥱძ ᥙ⍴ ᥲ𝖿𝗍ᥱr s᥆ოᥱ᥆ᥒᥱ ᥕһіs⍴ᥱrᥱძ ოᥱ і𝖿 𝗍һᥱy һᥲ᥎ᥱ ᥲ yᥙოᥱsһі⍴ ᥕі𝗍һ ᥆ᥒᥱ ᥆𝖿 ოy s᥆ᥒᥲs. ) <br>
 
-and for some certain things I didn't mention but I find gross, dw I block freely. <br>
+ᥲᥒძ 𝖿᥆r s᥆mᥱ ᥴᥱr𝗍ᥲіᥒ 𝗍һіᥒgs і ძіძᥒ'𝗍 ოᥱᥒ𝗍і᥆ᥒ ᑲᥙ𝗍 𝖿іᥒძ ძіsgᥙs𝗍іᥒg, ძᥕ і ᑲᥣ᥆ᥴk 𝖿rᥱᥱᥣy. <br>
 
 
 </details>
@@ -79,8 +79,8 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 <br>
 
 
-<a href="https://5ojo.atabook.org/?page=1">新book </a>　　
+<a href="https://5ojo.atabook.org/?page=1">新ᑲ᥆᥆k </a>　　
 ![ALT](https://cdn.phototourl.com/member/2026-10-22-32daea89-78e6-42c8-90fc-2df3a32d6aa8.gif) 
-      ⠀⠀⠀<a href="https://en.pronouns.page/@reibun">prnpage </a>
+      ⠀⠀⠀<a href="https://en.pronouns.page/@reibun">⍴rᥒ⍴ᥲgᥱ </a>
 
-<a href="https://guns.lol/5ojo">gunslol
+<a href="https://guns.lol/5ojo">gᥙᥒsᥣ᥆l

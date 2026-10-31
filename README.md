@@ -3,6 +3,7 @@
 ${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
 <br>
 <br> 
+<br>
 ![](https://komarev.com/ghpvc/?username=princessatoru&color=D5B9CD)
 <br>
 
@@ -20,7 +21,7 @@ ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4
 
 <details>
   <summary>
-     ${{\color{#F0CFD2}{\texttt{　doki4 ₍^^₎ }}}}$
+     ${{\color{#F0CFD2}{\texttt{　doki4  ഒ }}}}$
   </summary>
 
 
@@ -37,7 +38,7 @@ ${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://files.catbox.moe/763r4
 
 <details>
   <summary>
-     ${{\color{#D5B9CD}{\texttt{　dni ₍ᐢᐢ₎ }}}}$ 
+     ${{\color{#D5B9CD}{\texttt{　dni  ₍ᐢᐢ₎ }}}}$ 
   </summary>
 
 <br>

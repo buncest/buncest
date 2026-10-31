@@ -68,7 +68,6 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 
 <br>
 
-
 | (˵◝ ⩊  ◜˵マ | ໒꒱ |
 | ----- | ---- |
 | ![](https://files.catbox.moe/rul1w5.png) | `curiousity` |

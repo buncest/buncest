@@ -35,7 +35,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 
 
-![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ᥲძіs](https://github.com/F-02-14-23) <br>
+![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ᥲძіs](https://github.com/witnessing-surrender) <br>
 
 [ᥣіᥣ sіs gᥣᥲო](https://github.com/girlslikeguns) ![](https://files.catbox.moe/btzwqz.png)  <br>
 

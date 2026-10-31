@@ -1,25 +1,25 @@
 <div align="center">
   
-${{\color{#ffbfd6}{\textsf{DO NOT COPY MY PONIES }}}}$
+${{\color{#FFFFF1}{\textsf{DO NOT COPY MY PONIES}}}}$
 <br>
 <br> 
 <br>
 
 <div align="center">
   
-${{\color{#ffbfd6}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
+${{\color{#EECCD1}{\textsf{ chiyo / rei }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
 
 <div align="center">
   
-${{\color{#ffbfd6}{\textsf{my husband}}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-6c28291f-d689-43ba-bfb7-b411acabfac9.gif) <a href="https://github.com/miraicest">eric </a>
+${{\color{#EECCD1}{\textsf{my husband}}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-6c28291f-d689-43ba-bfb7-b411acabfac9.gif) <a href="https://github.com/miraicest">eric </a>
 
 <br>
 
-![Alt](https://cdn.phototourl.com/member/2026-10-22-1b93f5bd-0a69-4cbb-a200-04cd21897150.png)   
+![Alt](https://files.catbox.moe/oiojik.png)   
 
 <details>
   <summary>
-     ${{\color{#ffbfd6}{\texttt{　doki4 }}}}$
+     ${{\color{#F0CFD2}{\texttt{　doki4 }}}}$
   </summary>
 
 
@@ -36,7 +36,7 @@ ${{\color{#ffbfd6}{\textsf{my husband}}}}$ ![ALT](https://cdn.phototourl.com/mem
 
 <details>
   <summary>
-     ${{\color{#ffbfd6}{\texttt{　dni }}}}$
+     ${{\color{#D5B9CD}{\texttt{　dni }}}}$
   </summary>
 
 <br>
@@ -50,6 +50,16 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 
 
 </details>
+
+<br>
+
+
+| (˵◝ ⩊  ◜˵マ | ໒꒱ |
+| ----- | ---- |
+| ![](https://files.catbox.moe/rul1w5.png) | `curiousity` |
+| ![](https://files.catbox.moe/b26act.png) | `killed` |
+| ![](https://files.catbox.moe/9gdq6o.png) | `the` |
+| ![](https://files.catbox.moe/a8mvrb.png) | `cat` |
 
 <br>
 

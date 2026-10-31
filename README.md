@@ -68,7 +68,6 @@ and for some certain things I didn't mention but I find gross, dw I block freely
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&cover_image=false&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd6e2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&redirect=true)
 
-<br>
 
 | (˵◝ ⩊  ◜˵マ | ໒꒱ |
 | ----- | ---- |

@@ -17,7 +17,7 @@ ${{\color{#EECCD1}{\textsf{ rᥱі / ᥒᥲ᥆ოі }}}}$ ![ALT](https://cdn.pho
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/miraicest">ᥱrіᥴ </a>
+${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/jinwoo-cest">ᥱrіᥴ </a>
 
 <br>
 <div align="center">

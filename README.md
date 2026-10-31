@@ -86,7 +86,7 @@ ${{\color{#D5B9CD}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 <br>
 
-<a href="https://5ojo.atabook.org/?page=1">新ᑲ᥆᥆k </a>　　
+<a href="https://bvnicest.atabook.org/?pe=1">新ᑲ᥆᥆k </a>　　
 ![ALT](https://cdn.phototourl.com/member/2026-10-22-32daea89-78e6-42c8-90fc-2df3a32d6aa8.gif) 
       ⠀⠀⠀<a href="https://en.pronouns.page/@reibun">⍴rᥒ⍴ᥲgᥱ </a>
 

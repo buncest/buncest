@@ -19,14 +19,13 @@ ${{\color{#EECCD1}{\textsf{ rᥱі / ᥒᥲ᥆ოі }}}}$ ![ALT](https://cdn.pho
   
 ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/jinwoo-cest">ᥱrіᥴ </a>
 
-<br>
 <div align="center">
   
 ![](https://files.catbox.moe/yu16u9.png) 
 
 <div align="center">
   
-![Alt](https://files.catbox.moe/oiojik.png)   
+![Alt](https://files.catbox.moe/oiojik.png) 
 
 <details>
   <summary>
@@ -46,7 +45,10 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 </details>
 
-
+<table>
+  <tr>
+    <td>
+      <p align="center">
 <details>
   <summary>
      ${{\color{#D5B9CD}{\texttt{　ძᥒі  ₍ᐢᐢ₎ }}}}$ 
@@ -61,8 +63,11 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 
 ᥲᥒძ 𝖿᥆r s᥆mᥱ ᥴᥱr𝗍ᥲіᥒ 𝗍һіᥒgs і ძіძᥒ'𝗍 ოᥱᥒ𝗍і᥆ᥒ ᑲᥙ𝗍 𝖿іᥒძ ძіsgᥙs𝗍іᥒg, ძᥕ і ᑲᥣ᥆ᥴk 𝖿rᥱᥱᥣy. <br>
 
-
 </details>
+    </td>
+  </tr>
+</table>
+
 
 <br>
 

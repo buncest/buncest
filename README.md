@@ -25,7 +25,7 @@ ${{\color{#FFFFF1}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{ rᥱі / ᑲᥱᥲ𝗍rі᥊ / k᥆mі kᥲᥕᥲ / ᥒᥲ᥆mі　}}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
+${{\color{#EECCD1}{\textsf{ k᥆mі kᥲᥕᥲ }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
 
 <div align="center">
   

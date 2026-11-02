@@ -52,7 +52,6 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 <details>
   <summary>
      ${{\color{#D5B9CD}{\texttt{　ძᥒі　₍ᐢᐢ₎　}}}}$
-    ![ALT](https://cdn.phototourl.com/member/2026-11-02-5c2b179e-d1fb-4e05-ae8f-f38ca470ba6a.gif)
   </summary>
 
 <br>

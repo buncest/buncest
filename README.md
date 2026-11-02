@@ -41,7 +41,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 <details>
   <summary>
-     ${{\color{#F0CFD2}{\texttt{　◜♡　　ძ᥆kі4 　ഒ ₎₎　　}}}}$
+     ${{\color{#F0CFD2}{\texttt{　ძ᥆kі4 　ഒ }}}}$
   </summary>
 
 
@@ -63,7 +63,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
       <p align="center">
 <details>
   <summary>
-     ${{\color{#D5B9CD}{\texttt{　ᨳິ  ׂ . 　　ძᥒі　　₍ᐢᐢ₎  ˳　　}}}}$
+     ${{\color{#D5B9CD}{\texttt{　ᨳິ 　ძᥒі ₍ᐢᐢ₎  ˳　　}}}}$
   </summary>
 
 <br>

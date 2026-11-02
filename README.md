@@ -70,7 +70,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ᥆ᑲᥱs, rᥲᥴіs𝗍s, һ᥆ო᥆⍴һ᥆ᑲᥱs 𝗍rᥲᥒs⍴һ᥆ᑲᥱs, ȷᥙs𝗍 ᥲᥕ𝖿ᥙᥣ ⍴ᥱ᥆⍴ᥣᥱ іᥒ gᥱᥒᥱrᥲᥣ. <br>
 
-𝖿ᥣіr𝗍y ᥕᥱіrძ᥆s ᑲᥲᥴk ᥆𝖿𝖿, ძ᥆ᥒ'𝗍 𝗍ry 𝗍᥆ sᥱ᥊ᥙᥲᥣіzᥱ ᥆r yᥙოᥱsһі⍴ ᥕі𝗍һ my ᥆ᥴs/s᥆ᥒᥲs ᑲrᥙһ. 😭 <br>
+𝖿ᥣіr𝗍y ᥕᥱіrძ᥆s ᑲᥲᥴk ᥆𝖿𝖿, ძ᥆ᥒ'𝗍 𝗍ry 𝗍᥆ sᥱ᥊ᥙᥲᥣіzᥱ ᥆r yᥙოᥱsһі⍴ ᥕі𝗍һ my ᥆ᥴs/s᥆ᥒᥲs ᑲrᥙһ. ![](https://cdn.phototourl.com/member/2026-11-02-5c2b179e-d1fb-4e05-ae8f-f38ca470ba6a.gif) <br>
 ( yᥲᥣᥣ g᥆𝗍 ოᥱ ოᥱssᥱძ ᥙ⍴ ᥲ𝖿𝗍ᥱr s᥆ოᥱ᥆ᥒᥱ ᥕһіs⍴ᥱrᥱძ ოᥱ і𝖿 𝗍һᥱy һᥲ᥎ᥱ ᥲ yᥙოᥱsһі⍴ ᥕі𝗍һ ᥆ᥒᥱ ᥆𝖿 ოy s᥆ᥒᥲs. ) <br>
 
 ᥲᥒძ 𝖿᥆r s᥆mᥱ ᥴᥱr𝗍ᥲіᥒ 𝗍һіᥒgs і ძіძᥒ'𝗍 ოᥱᥒ𝗍і᥆ᥒ ᑲᥙ𝗍 𝖿іᥒძ ძіsgᥙs𝗍іᥒg, ძᥕ і ᑲᥣ᥆ᥴk 𝖿rᥱᥱᥣy. <br>

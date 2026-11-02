@@ -1,6 +1,6 @@
 <div align="center">
   
- ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFF1}{\textsf{　𓏏𓏏  ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs .   ♡    𓏽}}}}$
+ ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFF1}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
 <br>
 <br> 
 <br>
@@ -12,7 +12,7 @@
     <tr>
       <td>
         <p align="center">
-          ${{\color{#FFFFF1}{\textsf{　𓈒　(˵◝ ⩊ ◜˵マ .　ᥣі᥎ᥱ　}}}}$ ${{\color{#EECCD1}{\textsf{　ᥣ᥆ᥒg　ׂ　♡   }}}}$ ${{\color{#F0CFD2}{\textsf{  ᥲᥒძ　　}}}}$ ${{\color{#D5B9CD}{\textsf{　⍴ᥲᥕs⍴ᥙrr .ㅤ໒꒱　}}}}$
+          ${{\color{#FFFFF1}{\textsf{　(˵◝ ⩊ ◜˵マ .　ᥣі᥎ᥱ　}}}}$ ${{\color{#EECCD1}{\textsf{　ᥣ᥆ᥒg　ׂ　♡   }}}}$ ${{\color{#F0CFD2}{\textsf{  ᥲᥒძ　　}}}}$ ${{\color{#D5B9CD}{\textsf{　⍴ᥲᥕs⍴ᥙrr .ㅤ໒꒱　}}}}$
         </p>
       </td>
     </tr>
@@ -25,7 +25,7 @@ ${{\color{#FFFFF1}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{ ⚞ᣟᥱ 𓐇゜ rᥱі / ᥒᥲ᥆ოі　˙ ׅ　 𓏼　}}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
+${{\color{#EECCD1}{\textsf{ rᥱі / ᥒᥲ᥆ოі　}}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
 
 <div align="center">
   
@@ -41,7 +41,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 <details>
   <summary>
-     ${{\color{#F0CFD2}{\texttt{　◜ ♡ॱ𓏽　　ძ᥆kі4 ഒ ₎₎　}}}}$
+     ${{\color{#F0CFD2}{\texttt{　　◜ ♡ॱ𓏽　　ძ᥆kі4 ഒ ₎₎　　}}}}$
   </summary>
 
 
@@ -63,7 +63,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
       <p align="center">
 <details>
   <summary>
-     ${{\color{#D5B9CD}{\texttt{　ᨳິ  ׂ 　.   ძᥒі　₍ᐢᐢ₎  ˳　}}}}$
+     ${{\color{#D5B9CD}{\texttt{　　ᨳິ  ׂ 　.   ძᥒі　₍ᐢᐢ₎  ˳　　}}}}$
   </summary>
 
 <br>

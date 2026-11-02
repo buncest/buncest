@@ -90,7 +90,7 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&cover_image=false&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd6e2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&redirect=true)
 
 
-| (˵◝ ⩊  ◜˵マ | ໒꒱ |
+| (˵◝ ⩊  ◜˵マ | ![](https://cdn.phototourl.com/member/2026-11-02-cffd21cc-eaef-452e-89e6-3d530144ebfa.gif)　|
 | ----- | ---- |
 | ![](https://files.catbox.moe/rul1w5.png) | `ᥴᥙrі᥆ᥙsі𝗍ᥡ` | 
 | ![](https://files.catbox.moe/b26act.png) | `kіᥣᥣᥱძ` |

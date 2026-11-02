@@ -39,6 +39,8 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
   
 ![Alt](https://files.catbox.moe/oiojik.png) 
 
+<a href="https://komimemory.straw.page">ოᥱო᥆ryᑲ᥆᥆k </a> ![](https://cdn.phototourl.com/member/2026-11-02-d5d4dbcc-64a6-4862-9648-5df77449aae0.gif) 
+
 <details>
   <summary>
      ${{\color{#F0CFD2}{\texttt{　ძ᥆kі4　ഒ　}}}}$

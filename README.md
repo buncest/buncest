@@ -8,6 +8,18 @@
 <br>
 
 <div align="center">
+  <table border="1">
+    <tr>
+      <td>
+        <p align="center">
+          ${{\color{#FFFFF1}{\textsf{　ᥣі᥎ᥱ　}}}}$ ${{\color{#EECCD1}{\textsf{　ᥣ᥆ᥒg　}}}}$ ![](https://cdn.phototourl.com/member/2026-11-02-5c2b179e-d1fb-4e05-ae8f-f38ca470ba6a.gif) ${{\color{#F0CFD2}{\textsf{　ᥲᥒძ　}}}}$ ${{\color{#D5B9CD}{\textsf{　⍴ᥲᥕs⍴ᥙrr　}}}}$
+        </p>
+      </td>
+    </tr>
+  </table>
+</div>
+
+<div align="center">
   
 ${{\color{#FFFFF1}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
 

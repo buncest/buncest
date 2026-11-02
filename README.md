@@ -12,7 +12,7 @@
     <tr>
       <td>
         <p align="center">
-          ${{\color{#FFFFF1}{\textsf{　(˵◝ ⩊ ◜˵マ 　　ᥣі᥎ᥱ　}}}}$ ${{\color{#EECCD1}{\textsf{　ᥣ᥆ᥒg　}}}}$ ${{\color{#F0CFD2}{\textsf{　ᥲᥒძ　}}}}$ ${{\color{#D5B9CD}{\textsf{　⍴ᥲᥕs⍴ᥙrr .ㅤ໒꒱　}}}}$
+          ${{\color{#FFFFF1}{\textsf{　(˵◝ ⩊ ◜˵マ 　　　　　ᥣі᥎ᥱ　}}}}$ ${{\color{#EECCD1}{\textsf{　ᥣ᥆ᥒg　}}}}$ ${{\color{#F0CFD2}{\textsf{　ᥲᥒძ　}}}}$ ${{\color{#D5B9CD}{\textsf{　⍴ᥲᥕs⍴ᥙrr .ㅤ໒꒱　}}}}$
         </p>
       </td>
     </tr>

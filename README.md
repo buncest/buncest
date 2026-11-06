@@ -50,7 +50,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 ![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ᥲძіs](https://github.com/witnessing-surrender) <br>
 
-[ᥣіᥣ sіs gᥣᥲო](https://github.com/girlslikeguns) ![](https://files.catbox.moe/btzwqz.png)  <br>
+[ᥣіᥣ sіs gᥣᥲო](https://github.com/paperdoII) ![](https://files.catbox.moe/btzwqz.png)  <br>
 
 ![](https://files.catbox.moe/ctjw82.png) [ᑲᥲᑲy sіs ᥱᥣі](https://github.com/altruistdeviil)  <br>
 

@@ -54,7 +54,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 ![](https://files.catbox.moe/ctjw82.png) [ᑲᥲᑲy sіs ᥱᥣі](https://github.com/altruistdeviil)  <br>
 
-[ᑲᥲᑲy ᑲr᥆ ᥲ𝗍һᥱr](https://github.com/fyshiguro) ![](https://files.catbox.moe/btzwqz.png)  <br>
+[ᑲᥲᑲy ᑲr᥆ ᥲ𝗍һᥱr](https://github.com/fratgojo) ![](https://files.catbox.moe/btzwqz.png)  <br>
 
 
 </details>

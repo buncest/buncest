@@ -4,7 +4,7 @@
 
 <div align="center">
 
-````![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$````
+![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
 <br>
 <br> 
 <br>

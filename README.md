@@ -39,6 +39,10 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
   
 ![Alt](https://cdn.phototourl.com/member/2026-11-09-31b5cce7-896c-468c-9932-0185d8d15fd0.gif) 
 
+<div align="center">
+  
+![](https://cdn.phototourl.com/member/2026-11-09-85be67f7-f39b-464f-bcb2-14dd7b30c7fa.png) 
+
 <a href="https://komimemory.straw.page">ოᥱო᥆ryᑲ᥆᥆k </a> ![](https://cdn.phototourl.com/member/2026-11-02-d5d4dbcc-64a6-4862-9648-5df77449aae0.gif) 
 
 <details>
@@ -110,3 +114,7 @@ ${{\color{#D5B9CD}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
       ⠀⠀⠀<a href="https://en.pronouns.page/@reibun">⍴rᥒ⍴ᥲgᥱ </a>
 
 <a href="https://guns.lol/buncest">gᥙᥒsᥣ᥆l
+
+<div align="center">
+  
+![](https://cdn.phototourl.com/member/2026-11-09-25e74a2a-b1e0-4b16-a357-f079738e0cf4.png) 

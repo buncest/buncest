@@ -1,4 +1,7 @@
+<div align="center">
 
+![](https://cdn.phototourl.com/member/2026-11-09-168e0696-dd90-422e-ba48-1f3029ca752a.png) 
+  
 <div align="center">
   
 ![](https://cdn.phototourl.com/member/2026-11-09-0b90bf78-8957-4ab4-80ff-65ac7d17ea7f.png) 
@@ -9,7 +12,7 @@
 <br>
 <br> 
 <br>
-![](https://komarev.com/ghpvc/?username=princessatoru&label=　ʚ⠀ິɞ　&style=flat&color=FFFFD5)
+![](https://komarev.com/ghpvc/?username=princessatoru&label=　ʚ⠀ິɞ　&style=flat&color=FFA9BC)
 <br>
 
 <div align="center">
@@ -34,7 +37,7 @@ ${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 ### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
 ${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/jinwoo-cest) 
-${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFFFD5}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFFFD5}{\textsf{ოy}}}}$<br>${{\color{#FFDECA}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FFDECA}{\textsf{s᥆}}}}$<br>${{\color{#FFDECA}{\textsf{ოᥙᥴһ}}}}$
+${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFDECA}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFDECA}{\textsf{ოy}}}}$<br>${{\color{#FFA9BC}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FA7FAB}{\textsf{s᥆}}}}$<br>${{\color{#FA7FAB}{\textsf{ოᥙᥴһ}}}}$
 
 <br clear="left"/>
 

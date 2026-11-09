@@ -26,14 +26,15 @@
 
 <div align="center">
   
-${{\color{#FFDECA}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
+${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
 
 <div align="center">
 
 <img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="150" align="left" alt="bunbun" />
 
-### ${{\color{#D5B9CD}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
-${{\color{#D5B9CD}{\textsf{ოy}}}}$ ${{\color{#D5B9CD}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/jinwoo-cest) 
+### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
+${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/jinwoo-cest) 
+${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFFFD5}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFFFD5}{\textsf{ოy}}}}$<br>${{\color{#FFDECA}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FFDECA}{\textsf{s᥆}}}}$<br>${{\color{#FFDECA}{\textsf{ოᥙᥴһ}}}}$<br>${{\color{#FFA9BC}{\textsf{һᥱ}}}}$<br>${{\color{#FFA9BC}{\textsf{ძrі᥎ᥱs}}}}$<br>${{\color{#FA7FAB}{\textsf{ოᥱ}}}}$<br>${{\color{#FA7FAB}{\textsf{ᥒᥙ𝗍s}}}}$
 
 <br clear="left"/>
 

@@ -1,8 +1,4 @@
-<div align="center">
-
-![](https://cdn.phototourl.com/member/2026-11-09-168e0696-dd90-422e-ba48-1f3029ca752a.png) 
-  
-<div align="center">
+  <div align="center">
   
 ![](https://cdn.phototourl.com/member/2026-11-09-0b90bf78-8957-4ab4-80ff-65ac7d17ea7f.png) 
 
@@ -123,7 +119,7 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 
 <br>
 
-<img src="https://cdn.phototourl.com/member/2026-11-09-1be3cb5d-a924-44cf-9917-787055299379.png" width="100" align="right" alt="bunbun" />
+<img src="https://cdn.phototourl.com/member/2026-11-09-1be3cb5d-a924-44cf-9917-787055299379.png" width="200" align="right" alt="bunbun" />
 
 ### ${{\color{#FFDECA}{\textsf{links}}}}$
 <a href="https://bvnicest.atabook.org/?pe=1">

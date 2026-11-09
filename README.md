@@ -33,7 +33,7 @@ ${{\color{#FFDECA}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 <img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="150" align="left" alt="bunbun" />
 
 ### ${{\color{#D5B9CD}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
-mk asf
+${{\color{#D5B9CD}{\textsf{ოy}}}}$ ${{\color{#D5B9CD}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/jinwoo-cest) 
 
 <br clear="left"/>
 

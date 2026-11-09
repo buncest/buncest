@@ -1,3 +1,8 @@
+
+<div align="center">
+  
+![](https://cdn.phototourl.com/member/2026-11-09-0b90bf78-8957-4ab4-80ff-65ac7d17ea7f.png) 
+
 <div align="center">
   
  ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFF1}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
@@ -33,15 +38,11 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 <div align="center">
   
-![](https://cdn.phototourl.com/member/2026-11-09-0b90bf78-8957-4ab4-80ff-65ac7d17ea7f.png) 
+![](https://cdn.phototourl.com/member/2026-11-09-85be67f7-f39b-464f-bcb2-14dd7b30c7fa.png) 
 
 <div align="center">
   
 ![Alt](https://cdn.phototourl.com/member/2026-11-09-31b5cce7-896c-468c-9932-0185d8d15fd0.gif) 
-
-<div align="center">
-  
-![](https://cdn.phototourl.com/member/2026-11-09-85be67f7-f39b-464f-bcb2-14dd7b30c7fa.png) 
 
 <a href="https://komimemory.straw.page">ოᥱო᥆ryᑲ᥆᥆k </a> ![](https://cdn.phototourl.com/member/2026-11-02-d5d4dbcc-64a6-4862-9648-5df77449aae0.gif) 
 

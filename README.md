@@ -3,8 +3,8 @@
 ![](https://cdn.phototourl.com/member/2026-11-09-0b90bf78-8957-4ab4-80ff-65ac7d17ea7f.png) 
 
 <div align="center">
-  
- ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
+
+````![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$````
 <br>
 <br> 
 <br>

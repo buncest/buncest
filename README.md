@@ -32,7 +32,7 @@ ${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 <img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="200" align="left" alt="bunbun" />
 
 ### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
-${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/jinwoo-cest) 
+${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/leoncest) 
 ${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFDECA}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFDECA}{\textsf{ოy}}}}$<br>${{\color{#FFA9BC}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FA7FAB}{\textsf{s᥆}}}}$<br>${{\color{#FA7FAB}{\textsf{ოᥙᥴһ}}}}$
 
 <br clear="left"/>
@@ -60,9 +60,9 @@ ${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFDECA}{\textsf{ᥣ᥆᥎ᥱ}}}
 
 
 
-![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ᥲძіs](https://github.com/witnessing-surrender) <br>
+![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ძᥙᥒᥱ](https://github.com/witnessing-surrender) <br>
 
-[ᥣіᥣ sіs gᥣᥲო](https://github.com/paperdoII) ![](https://files.catbox.moe/btzwqz.png)  <br>
+[ᥣіᥣ sіs gᥣᥲm](https://github.com/paperdoII) ![](https://files.catbox.moe/btzwqz.png)  <br>
 
 ![](https://files.catbox.moe/ctjw82.png) [ᑲᥲᑲy sіs ᥱᥣі](https://github.com/altruistdeviil)  <br>
 

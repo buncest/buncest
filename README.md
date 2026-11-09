@@ -5,11 +5,11 @@
 
 <div align="center">
   
- ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFF1}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
+ ![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
 <br>
 <br> 
 <br>
-![](https://komarev.com/ghpvc/?username=princessatoru&label=　ʚ⠀ິɞ　&style=flat&color=FFFFF1)
+![](https://komarev.com/ghpvc/?username=princessatoru&label=　ʚ⠀ິɞ　&style=flat&color=FFFFD5)
 <br>
 
 <div align="center">
@@ -17,7 +17,7 @@
     <tr>
       <td>
         <p align="center">
-          ${{\color{#FFFFF1}{\textsf{　(˵◝ ⩊ ◜˵マ　　}}}}$ &nbsp;&nbsp; ${{\color{#FFFFF1}{\textsf{　　ᥣі᥎ᥱ　}}}}$ &nbsp;&nbsp; ${{\color{#EECCD1}{\textsf{　ᥣ᥆ᥒg　}}}}$ &nbsp;&nbsp;&nbsp;&nbsp; ${{\color{#F0CFD2}{\textsf{　ᥲᥒძ　}}}}$ &nbsp;&nbsp; ${{\color{#D5B9CD}{\textsf{　⍴ᥲᥕs⍴ᥙrr ㅤ໒꒱　}}}}$
+          ${{\color{#FFFFD5}{\textsf{　(˵◝ ⩊ ◜˵マ　　}}}}$ &nbsp;&nbsp; ${{\color{#FFDECA}{\textsf{　　ᥣі᥎ᥱ　}}}}$ &nbsp;&nbsp; ${{\color{#FFA9BC}{\textsf{　ᥣ᥆ᥒg　}}}}$ &nbsp;&nbsp;&nbsp;&nbsp; ${{\color{#FA7FAB}{\textsf{　ᥲᥒძ　}}}}$ &nbsp;&nbsp; ${{\color{#FA7FAB}{\textsf{　⍴ᥲᥕs⍴ᥙrr ㅤ໒꒱　}}}}$
         </p>
       </td>
     </tr>
@@ -26,15 +26,15 @@
 
 <div align="center">
   
-${{\color{#FFFFF1}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
+${{\color{#FFDECA}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{ k᥆mі kᥲᥕᥲ }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
+${{\color{#FFDECA}{\textsf{ k᥆mі kᥲᥕᥲ }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
 
 <div align="center">
   
-${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/jinwoo-cest">ᥱrіᥴ </a>
+${{\color{#FFA9BC}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/jinwoo-cest">ᥱrіᥴ </a>
 
 <div align="center">
   
@@ -48,7 +48,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 <details>
   <summary>
-     ${{\color{#F0CFD2}{\texttt{　ძ᥆kі4　ഒ　}}}}$
+     ${{\color{#FFA9BC}{\texttt{　ძ᥆kі4　ഒ　}}}}$
   </summary>
 
 
@@ -70,7 +70,7 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
       <p align="center">
 <details>
   <summary>
-     ${{\color{#D5B9CD}{\texttt{　ძᥒі　₍ᐢᐢ₎　}}}}$
+     ${{\color{#FA7FAB}{\texttt{　ძᥒі　₍ᐢᐢ₎　}}}}$
   </summary>
 
 <br>
@@ -106,16 +106,25 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 
 <br>
 
-${{\color{#D5B9CD}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
+<div align="center">
+  
+![](https://cdn.phototourl.com/member/2026-11-09-85be67f7-f39b-464f-bcb2-14dd7b30c7fa.png) 
 
 <br>
 
-<a href="https://bvnicest.atabook.org/?pe=1">新ᑲ᥆᥆k </a>　　
-![ALT](https://cdn.phototourl.com/member/2026-10-22-32daea89-78e6-42c8-90fc-2df3a32d6aa8.gif) 
-      ⠀⠀⠀<a href="https://en.pronouns.page/@reibun">⍴rᥒ⍴ᥲgᥱ </a>
+<a href="https://bvnicest.atabook.org/?pe=1">
+  <img src="https://cdn.phototourl.com/member/2026-11-09-805b4605-f924-4284-ae93-2d7d218b1695.png" width="200" />
+</a>
 
-<a href="https://guns.lol/buncest">gᥙᥒsᥣ᥆l
+<a href="https://guns.lol/buncest">
+  <img src="https://cdn.phototourl.com/member/2026-11-09-68aa2120-05cb-4470-88dc-f42aecab009c.png" width="200" />
+</a>
 
+<a href="https://en.pronouns.page/@reibun">
+  <img src="https://cdn.phototourl.com/member/2026-11-09-51d71577-dc40-413a-be20-cf50994f05da.png" width="200" />
+</a>
 <div align="center">
+
+${{\color{#FA7FAB}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
   
 ![](https://cdn.phototourl.com/member/2026-11-09-25e74a2a-b1e0-4b16-a357-f079738e0cf4.png) 

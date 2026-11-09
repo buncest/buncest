@@ -123,16 +123,16 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 
 ### ${{\color{#FFDECA}{\textsf{links}}}}$
 <a href="https://bvnicest.atabook.org/?pe=1">
-  <img src="https://cdn.phototourl.com/member/2026-11-09-805b4605-f924-4284-ae93-2d7d218b1695.png" width="100" />
+  <img src="https://cdn.phototourl.com/member/2026-11-09-805b4605-f924-4284-ae93-2d7d218b1695.png" width="80" />
 </a>
 <br>
 <a href="https://bvnicest.atabook.org/?pe=1">
   <a href="https://guns.lol/buncest">
-  <img src="https://cdn.phototourl.com/member/2026-11-09-68aa2120-05cb-4470-88dc-f42aecab009c.png" width="100" />
+  <img src="https://cdn.phototourl.com/member/2026-11-09-68aa2120-05cb-4470-88dc-f42aecab009c.png" width="80" />
   </a>
   <br>
   <a href="https://en.pronouns.page/@reibun">
-  <img src="https://cdn.phototourl.com/member/2026-11-09-51d71577-dc40-413a-be20-cf50994f05da.png" width="100" />
+  <img src="https://cdn.phototourl.com/member/2026-11-09-51d71577-dc40-413a-be20-cf50994f05da.png" width="80" />
   </a>
 
 <br clear="right"/>

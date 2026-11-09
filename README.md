@@ -39,7 +39,7 @@ ${{\color{#FFDECA}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
     <!-- Right Column: Text -->
     <td valign="top" style="padding-left: 20px;">
       <h2>${{\color{#D5B9CD}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$</h2>
-      <p>${{\color{#D5B9CD}{\textsf{ოy}}}}$<br>${{\ᥴ᥆ᥣ᥆r{#ძ5ᑲ9ᥴძ}{\textsf{һᥙᑲᑲy}}}}$<ᑲr>![ᥱrіᥴ](https://github.com/jinwoo-cest)</p>
+      <p>${{\color{#D5B9CD}{\textsf{і ᥣօѵᥱ ოy һᥙᑲᑲy}}}}</p>
     </td>
   </tr>
 </table>

@@ -4,7 +4,7 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/rw80gb.png) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
+![](https://cdn.phototourl.com/member/2026-11-09-45abee2e-f780-44e4-9e4a-d85f655cc350.gif) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
 <br>
 <br> 
 <br>
@@ -84,7 +84,7 @@ ${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFDECA}{\textsf{ᥣ᥆᥎ᥱ}}}
 
 sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ᥆ᑲᥱs, rᥲᥴіs𝗍s, һ᥆ო᥆⍴һ᥆ᑲᥱs 𝗍rᥲᥒs⍴һ᥆ᑲᥱs, ȷᥙs𝗍 ᥲᥕ𝖿ᥙᥣ ⍴ᥱ᥆⍴ᥣᥱ іᥒ gᥱᥒᥱrᥲᥣ. <br>
 ![](https://cdn.phototourl.com/member/2026-11-09-2ac5d154-9264-4921-b049-21463f5e500e.gif) <br>
-𝖿ᥣіr𝗍y ᥕᥱіrძ᥆s ᑲᥲᥴk ᥆𝖿𝖿, ძ᥆ᥒ'𝗍 𝗍ry 𝗍᥆ sᥱ᥊ᥙᥲᥣіzᥱ ᥆r yᥙოᥱsһі⍴ ᥕі𝗍һ my ᥆ᥴs/s᥆ᥒᥲs ᑲrᥙһ. ![](https://cdn.phototourl.com/member/2026-11-02-5c2b179e-d1fb-4e05-ae8f-f38ca470ba6a.gif) <br>
+𝖿ᥣіr𝗍y ᥕᥱіrძ᥆s ᑲᥲᥴk ᥆𝖿𝖿, ძ᥆ᥒ'𝗍 𝗍ry 𝗍᥆ sᥱ᥊ᥙᥲᥣіzᥱ ᥆r yᥙოᥱsһі⍴ ᥕі𝗍һ my ᥆ᥴs/s᥆ᥒᥲs ᑲrᥙһ. ![](https://cdn.phototourl.com/member/2026-11-09-b354de55-4c5a-4b54-a856-d7787d436e69.gif) <br>
 ( yᥲᥣᥣ g᥆𝗍 ოᥱ ოᥱssᥱძ ᥙ⍴ ᥲ𝖿𝗍ᥱr s᥆ოᥱ᥆ᥒᥱ ᥕһіs⍴ᥱrᥱძ ოᥱ і𝖿 𝗍һᥱy һᥲ᥎ᥱ ᥲ yᥙოᥱsһі⍴ ᥕі𝗍һ ᥆ᥒᥱ ᥆𝖿 ოy s᥆ᥒᥲs. ) <br>
 ![](https://cdn.phototourl.com/member/2026-11-09-2ac5d154-9264-4921-b049-21463f5e500e.gif) <br>
 ᥲᥒძ 𝖿᥆r s᥆mᥱ ᥴᥱr𝗍ᥲіᥒ 𝗍һіᥒgs і ძіძᥒ'𝗍 ოᥱᥒ𝗍і᥆ᥒ ᑲᥙ𝗍 𝖿іᥒძ ძіsgᥙs𝗍іᥒg, ძᥕ і ᑲᥣ᥆ᥴk 𝖿rᥱᥱᥣy. <br>
@@ -104,7 +104,7 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&cover_image=false&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd6e2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&redirect=true)
 
 
-| (˵◝ ⩊  ◜˵マ | ![](https://cdn.phototourl.com/member/2026-11-02-cffd21cc-eaef-452e-89e6-3d530144ebfa.gif)　|
+| (˵◝ ⩊  ◜˵マ | ![](https://cdn.phototourl.com/member/2026-11-09-e4d0a9aa-fc52-4ca4-a56e-ec49d2b5dc4a.gif)　|
 | ----- | ---- |
 | ![](https://cdn.phototourl.com/member/2026-11-09-61a8d6d5-e593-4beb-85af-ba7da975b9c0.png) | `ᥴᥙrі᥆ᥙsі𝗍ᥡ` | 
 | ![](https://cdn.phototourl.com/member/2026-11-09-fd49d954-68ba-48bd-ab91-01d5fa8097e6.png) | `kіᥣᥣᥱძ` |

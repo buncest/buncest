@@ -34,7 +34,7 @@ ${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 ### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
 ${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/jinwoo-cest) 
-${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFFFD5}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFFFD5}{\textsf{ოy}}}}$<br>${{\color{#FFDECA}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FFDECA}{\textsf{s᥆}}}}$<br>${{\color{#FFDECA}{\textsf{ოᥙᥴһ}}}}$<br>${{\color{#FFA9BC}{\textsf{һᥱ}}}}$<br>${{\color{#FFA9BC}{\textsf{ძrі᥎ᥱs}}}}$<br>${{\color{#FA7FAB}{\textsf{ოᥱ}}}}$<br>${{\color{#FA7FAB}{\textsf{ᥒᥙ𝗍s}}}}$
+${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFFFD5}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFFFD5}{\textsf{ოy}}}}$<br>${{\color{#FFDECA}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FFDECA}{\textsf{s᥆}}}}$<br>${{\color{#FFDECA}{\textsf{ოᥙᥴһ}}}}$<br>${{\color{#FFA9BC}
 
 <br clear="left"/>
 

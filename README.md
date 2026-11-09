@@ -44,7 +44,11 @@ ${{\color{#FFA9BC}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
   
 ![Alt](https://cdn.phototourl.com/member/2026-11-09-31b5cce7-896c-468c-9932-0185d8d15fd0.gif) 
 
-<a href="https://komimemory.straw.page">ოᥱო᥆ryᑲ᥆᥆k </a> ![](https://cdn.phototourl.com/member/2026-11-02-d5d4dbcc-64a6-4862-9648-5df77449aae0.gif) 
+<div align="center">
+  
+<a href="https://komimemory.straw.page">
+  <img src="https://cdn.phototourl.com/member/2026-11-09-a0578038-140d-449b-b04f-f6a61ab886e5.png" width="200" />
+</a>
 
 <details>
   <summary>

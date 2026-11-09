@@ -29,6 +29,17 @@
 ${{\color{#FFDECA}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
 
 <div align="center">
+
+<img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="150" align="left" alt="bunbun" />
+
+### ${{\color{#D5B9CD}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
+mk asf
+
+<br clear="left"/>
+
+<br>
+
+<div align="center">
   
 ![](https://cdn.phototourl.com/member/2026-11-09-85be67f7-f39b-464f-bcb2-14dd7b30c7fa.png) 
 

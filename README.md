@@ -30,11 +30,11 @@ ${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 <div align="center">
 
-<img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="150" align="left" alt="bunbun" />
+<img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="200" align="left" alt="bunbun" />
 
 ### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
 ${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/jinwoo-cest) 
-${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFFFD5}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFFFD5}{\textsf{ოy}}}}$<br>${{\color{#FFDECA}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FFDECA}{\textsf{s᥆}}}}$<br>${{\color{#FFDECA}{\textsf{ოᥙᥴһ}}}}$<br>${{\color{#FFA9BC}
+${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFFFD5}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFFFD5}{\textsf{ოy}}}}$<br>${{\color{#FFDECA}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FFDECA}{\textsf{s᥆}}}}$<br>${{\color{#FFDECA}{\textsf{ოᥙᥴһ}}}}$
 
 <br clear="left"/>
 

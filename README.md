@@ -8,7 +8,7 @@
 <br>
 <br> 
 <br>
-![](https://komarev.com/ghpvc/?username=princessatoru&label=　ʚ⠀ິɞ　&style=pixel&color=FFA9BC)
+![](https://komarev.com/ghpvc/?username=princessatoru&label=　ʚ⠀ິɞ　&style=flat&color=FFA9BC)
 <br>
 
 <div align="center">

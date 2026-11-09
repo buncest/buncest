@@ -30,11 +30,20 @@ ${{\color{#FFDECA}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 <div align="center">
   
-${{\color{#FFDECA}{\textsf{ k᥆mі kᥲᥕᥲ }}}}$ ![ALT](https://cdn.phototourl.com/member/2026-10-22-e1ec9e86-fdd9-431b-ba48-612dcf4a1708.gif)
+<table>
+  <tr>
+    <!-- Left Column: Image -->
+    <td valign="top">
+      <img src="https://cdn.phototourl.com/member/2026-11-09-24480baf-d5d5-4a1d-bbaa-802afd70b759.png" width="250" alt="bun" />
+    </td>
+    <!-- Right Column: Text -->
+    <td valign="top" style="padding-left: 20px;">
+      <h2>${{\color{#D5B9CD}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$</h2>
+      <p>${{\color{#D5B9CD}{\textsf{ოy}}}}$<br>${{\ᥴ᥆ᥣ᥆r{#ძ5ᑲ9ᥴძ}{\textsf{һᥙᑲᑲy}}}}$<ᑲr>![ᥱrіᥴ](https://github.com/jinwoo-cest)</p>
+    </td>
+  </tr>
+</table>
 
-<div align="center">
-  
-${{\color{#FFA9BC}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.catbox.moe/763r4b.png) <a href="https://github.com/jinwoo-cest">ᥱrіᥴ </a>
 
 <div align="center">
   
@@ -129,6 +138,6 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 </a>
 <div align="center">
 
-${{\color{#FA7FAB}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
+${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟⏔}}}}$
   
 ![](https://cdn.phototourl.com/member/2026-11-09-25e74a2a-b1e0-4b16-a357-f079738e0cf4.png) 

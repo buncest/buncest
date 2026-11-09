@@ -33,11 +33,11 @@ ${{\color{#EECCD1}{\textsf{ოy һᥙsᑲᥲᥒძ}}}}$ ![ALT](https://files.cat
 
 <div align="center">
   
-![](https://files.catbox.moe/yu16u9.png) 
+![](https://cdn.phototourl.com/member/2026-11-09-0b90bf78-8957-4ab4-80ff-65ac7d17ea7f.png) 
 
 <div align="center">
   
-![Alt](https://files.catbox.moe/oiojik.png) 
+![Alt](https://cdn.phototourl.com/member/2026-11-09-31b5cce7-896c-468c-9932-0185d8d15fd0.gif) 
 
 <a href="https://komimemory.straw.page">ოᥱო᥆ryᑲ᥆᥆k </a> ![](https://cdn.phototourl.com/member/2026-11-02-d5d4dbcc-64a6-4862-9648-5df77449aae0.gif) 
 
@@ -87,17 +87,17 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 
 <div align="center">
 
-![](https://files.catbox.moe/r3et5z.png) 
+![](https://cdn.phototourl.com/member/2026-11-09-9ddd97b3-70e3-4be2-829b-c7c26aa4b6aa.gif) 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&cover_image=false&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffd6e2&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=6pg8flgu5wy2qfo01nyaalp7q&redirect=true)
 
 
 | (˵◝ ⩊  ◜˵マ | ![](https://cdn.phototourl.com/member/2026-11-02-cffd21cc-eaef-452e-89e6-3d530144ebfa.gif)　|
 | ----- | ---- |
-| ![](https://files.catbox.moe/rul1w5.png) | `ᥴᥙrі᥆ᥙsі𝗍ᥡ` | 
-| ![](https://files.catbox.moe/b26act.png) | `kіᥣᥣᥱძ` |
-| ![](https://files.catbox.moe/9gdq6o.png) | `𝗍һᥱ` |
-| ![](https://files.catbox.moe/a8mvrb.png) | `ᥴᥲ𝗍` |
+| ![](https://cdn.phototourl.com/member/2026-11-09-61a8d6d5-e593-4beb-85af-ba7da975b9c0.png) | `ᥴᥙrі᥆ᥙsі𝗍ᥡ` | 
+| ![](https://cdn.phototourl.com/member/2026-11-09-fd49d954-68ba-48bd-ab91-01d5fa8097e6.png) | `kіᥣᥣᥱძ` |
+| ![](https://cdn.phototourl.com/member/2026-11-09-c3f2c8af-a388-4702-9751-872f1a1ac122.png) | `𝗍һᥱ` |
+| ![](https://cdn.phototourl.com/member/2026-11-09-69fa1737-8d8e-4219-9269-cdd82102a5a2.png) | `ᥴᥲ𝗍` |
 
 <br>
 

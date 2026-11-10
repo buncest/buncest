@@ -36,8 +36,9 @@ ${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 <img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="200" align="left" alt="bunbun" />
 
 ### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
-${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/leoncest) 
-${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFDECA}{\textsf{ᥣ᥆᥎ᥱ}}}}$<br>${{\color{#FFDECA}{\textsf{ოy}}}}$<br>${{\color{#FFA9BC}{\textsf{һᥙsᑲᥲᥒძ}}}}$<br>${{\color{#FA7FAB}{\textsf{s᥆}}}}$<br>${{\color{#FA7FAB}{\textsf{ოᥙᥴһ}}}}$
+${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/leoncest)
+
+{\textsf{05}}}}$<br>${{\color{#FFDECA}{\textsf{5}}}}$<br>${{\color{#FFA9BC}{\textsf{2026}}}}$<br>${{\color{#FA7FAB}{\textsf{<6}}}}$<br>${{\color{#FA7FAB}{\textsf{m᥆ᥒ𝗍һs3}}}}$
 
 <br clear="left"/>
 

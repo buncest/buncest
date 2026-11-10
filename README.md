@@ -1,6 +1,6 @@
   <div align="center">
     
-###  ${{\color{#FFFFD5}{\textsf{ ᥣ᥆᥆ks ᑲᥱ𝗍𝗍ᥱr ᥆ᥒ m᥆ᑲіᥣᥱ }}}}$
+###  ${{\color{#FFFFD5}{\textsf{ ᥣ᥆᥆ks ᑲᥱ𝗍𝗍ᥱr ᥆ᥒ m᥆ᑲіᥣᥱ ♡ }}}}$
     
   <div align="center">
   
@@ -8,7 +8,7 @@
 
 <div align="center">
 
-![](https://cdn.phototourl.com/member/2026-11-09-45abee2e-f780-44e4-9e4a-d85f655cc350.gif) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ოy ⍴᥆ᥒіᥱs }}}}$
+![](https://cdn.phototourl.com/member/2026-11-09-45abee2e-f780-44e4-9e4a-d85f655cc350.gif) ${{\color{#FFFFD5}{\textsf{ ძ᥆ ᥒ᥆𝗍 ᥴ᥆⍴y ᥆r 𝗍ᥲkᥱ іᥒs⍴᥆ ᥆𝖿 ოy ⍴᥆ᥒіᥱs }}}}$
 <br>
 <br> 
 <br>

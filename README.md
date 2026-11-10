@@ -143,8 +143,9 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
   </a>
   <br>
   <a href="https://en.pronouns.page/@reibun">
-<br> <img src="https://cdn.phototourl.com/member/2026-11-09-51d71577-dc40-413a-be20-cf50994f05da.png" width="200" /> <br>
+<br> <img src="https://cdn.phototourl.com/member/2026-11-09-51d71577-dc40-413a-be20-cf50994f05da.png" width="200" />
   </a>
+  <br>
   </td>
   </tr>
 </table>

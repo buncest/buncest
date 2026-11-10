@@ -38,7 +38,7 @@ ${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 ### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
 ${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/leoncest)
 
-{\textsf{05}}}}$ ${{\color{#FFDECA}{\textsf{5}}}}$ ${{\color{#FFA9BC}{\textsf{2026}}}}$ ${{\color{#FA7FAB}{\textsf{< 6}}}}$ ${{\color{#FA7FAB}{\textsf{m᥆ᥒ𝗍һs 3}}}}$
+${{\color{#FFFFD5}{\textsf{05}}}}$ ${{\color{#FFDECA}{\textsf{5}}}}$ ${{\color{#FFA9BC}{\textsf{2026}}}}$<br>${{\color{#FA7FAB}{\textsf{< 6}}}}$ ${{\color{#FA7FAB}{\textsf{m᥆ᥒ𝗍һs 3}}}}$
 
 <br clear="left"/>
 

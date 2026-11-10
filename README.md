@@ -60,7 +60,7 @@ ${{\color{#FFFFD5}{\textsf{і}}}}$<br>${{\color{#FFDECA}{\textsf{ᥣ᥆᥎ᥱ}}}
 
 
 
-![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ძᥙᥒᥱ](https://github.com/witnessing-surrender) <br>
+![](https://files.catbox.moe/ctjw82.png) [⍴ᥲ⍴ᥲ ძᥙᥒᥱ](https://github.com/DuneDiffindo) <br>
 
 [ᥣіᥣ sіs gᥣᥲm](https://github.com/paperdoII) ![](https://files.catbox.moe/btzwqz.png)  <br>
 

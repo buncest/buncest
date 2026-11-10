@@ -106,10 +106,10 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 
 | (˵◝ ⩊  ◜˵マ | ![](https://cdn.phototourl.com/member/2026-11-09-e4d0a9aa-fc52-4ca4-a56e-ec49d2b5dc4a.gif)　|
 | ----- | ---- |
-| ![](https://cdn.phototourl.com/member/2026-11-09-61a8d6d5-e593-4beb-85af-ba7da975b9c0.png) | `ᥴᥙrі᥆ᥙsі𝗍ᥡ` | 
-| ![](https://cdn.phototourl.com/member/2026-11-09-fd49d954-68ba-48bd-ab91-01d5fa8097e6.png) | `kіᥣᥣᥱძ` |
-| ![](https://cdn.phototourl.com/member/2026-11-09-c3f2c8af-a388-4702-9751-872f1a1ac122.png) | `𝗍һᥱ` |
-| ![](https://cdn.phototourl.com/member/2026-11-09-69fa1737-8d8e-4219-9269-cdd82102a5a2.png) | `ᥴᥲ𝗍` |
+| ![](https://cdn.phototourl.com/member/2026-11-09-61a8d6d5-e593-4beb-85af-ba7da975b9c0.png) | `һ᥆⍴` | 
+| ![](https://cdn.phototourl.com/member/2026-11-09-fd49d954-68ba-48bd-ab91-01d5fa8097e6.png) | `ᥣі𝗍𝗍ᥣᥱ` |
+| ![](https://cdn.phototourl.com/member/2026-11-09-c3f2c8af-a388-4702-9751-872f1a1ac122.png) | `ᑲᥙᥒᥒy` |
+| ![](https://cdn.phototourl.com/member/2026-11-09-69fa1737-8d8e-4219-9269-cdd82102a5a2.png) | `һ᥆⍴ һ᥆⍴! ` |
 
 <br>
 

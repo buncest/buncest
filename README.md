@@ -128,7 +128,8 @@ ${{\color{#FFDECA}{\textsf{ ო᥆ო᥆sᥱ }}}}$ ${{\color{#FFA9BC}{\textsf{�
 <br>
 </td>
     <td>
-<br> <img src="https://cdn.phototourl.com/member/2026-11-09-819cbdf4-8741-4f02-8195-b5727b55aea4.png" width="200" /> <br>
+<br> ${{\color{#FFFFD5}{\textsf{　𑣲₍ ᐢ. .ᐢ₎　}}}}$
+<img src="https://cdn.phototourl.com/member/2026-11-09-819cbdf4-8741-4f02-8195-b5727b55aea4.png" width="200" /> <br>
 </a>
 <a href="https://bvnicest.atabook.org/?pe=1">
 <br> <img src="https://cdn.phototourl.com/member/2026-11-09-805b4605-f924-4284-ae93-2d7d218b1695.png" width="200" />

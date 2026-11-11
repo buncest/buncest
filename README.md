@@ -124,11 +124,10 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 <table>
   <tr>
     <td>
-${{\color{#FFDECA}{\textsf{ ო᥆ო᥆sᥱ }}}}$ ${{\color{#FFA9BC}{\textsf{　ოі𝗍sᥙkі　}}}}$ ${{\color{#FA7FAB}{\textsf{　𝖿іᥴ𝗍kіᥒ　}}}}$ <img src="https://cdn.phototourl.com/member/2026-11-09-1be3cb5d-a924-44cf-9917-787055299379.png" width="200" align="right" alt="bunbun" />
+ <img src="https://cdn.phototourl.com/member/2026-11-09-1be3cb5d-a924-44cf-9917-787055299379.png" width="200" align="right" alt="bunbun" />
 <br>
 </td>
     <td>
-${{\color{#FFFFD5}{\textsf{　𑣲₍ ᐢ. .ᐢ₎　}}}}$
 <br> <img src="https://cdn.phototourl.com/member/2026-11-09-819cbdf4-8741-4f02-8195-b5727b55aea4.png" width="200" /> <br>
 </a>
 <a href="https://bvnicest.atabook.org/?pe=1">

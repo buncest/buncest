@@ -128,7 +128,7 @@ sһі⍴s, ⍴r᥆sһі⍴⍴ᥱrs, ძᥲrksһі⍴⍴ᥱrs, ᥊ᥱᥒ᥆⍴һ�
 <table>
   <tr>
     <td>
-${{\color{#FFA9BC}{\textsf{ ო᥆ო᥆sᥱ }}}}$${{\color{#FA7FAB}{\textsf{　ოі𝗍sᥙkі　}}}}$ <img src="https://cdn.phototourl.com/member/2026-11-09-1be3cb5d-a924-44cf-9917-787055299379.png" width="200" align="right" alt="bunbun" />
+${{\color{#FFA9BC}{\textsf{ ო᥆ო᥆sᥱ }}}}$ ${{\color{#FA7FAB}{\textsf{　ოі𝗍sᥙkі　}}}}$ <img src="https://cdn.phototourl.com/member/2026-11-09-1be3cb5d-a924-44cf-9917-787055299379.png" width="200" align="right" alt="bunbun" />
 <br>
 </td>
     <td>

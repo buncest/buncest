@@ -35,7 +35,6 @@ ${{\color{#FFFFD5}{\textsf{⏔𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟�
 
 <img src="https://cdn.phototourl.com/member/2026-11-09-07e465f6-f7a8-4adb-8264-010a3beb7e46.png" width="150" align="right" alt="bunbun" />
 
-### <br>
 ### ${{\color{#FFFFD5}{\textsf{k᥆ოі kᥲᥕᥲ}}}}$
 ${{\color{#FFDECA}{\textsf{ოy}}}}$ ${{\color{#FFA9BC}{\textsf{һᥙᑲᑲy}}}}$ [eric](https://github.com/leoncest)
 
